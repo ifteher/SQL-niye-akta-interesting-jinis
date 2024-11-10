@@ -1,0 +1,1 @@
+# SQL-niye-akta-interesting-jinis
